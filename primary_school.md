@@ -8,3 +8,4 @@ Words to learn for primary school
 6. frustrated
 7. gigantic
 8. investigate
+9. leader
