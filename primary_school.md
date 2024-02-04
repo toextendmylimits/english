@@ -5,3 +5,4 @@ Words to learn for primary school
 3. curious
 4. exhausted
 5. feast
+6. frustrated
