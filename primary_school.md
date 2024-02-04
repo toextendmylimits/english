@@ -9,3 +9,4 @@ Words to learn for primary school
 7. gigantic
 8. investigate
 9. leader
+10. miserable
