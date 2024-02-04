@@ -4,3 +4,4 @@ Words to learn for primary school
 2. consequence
 3. curious
 4. exhausted
+5. feast
