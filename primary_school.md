@@ -22,3 +22,17 @@ Words to learn for primary school
 20. spend
 21. although
 22. process
+23. market
+24. expect
+25. nation
+26. death
+27. effect
+28. perhaps
+29. former
+30. major
+31. development
+32. effort
+33. whole
+34. military
+35. federal
+36. 
