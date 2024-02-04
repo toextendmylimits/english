@@ -20,3 +20,4 @@ Words to learn for primary school
 18. political
 19. social
 20. spend
+21. although
