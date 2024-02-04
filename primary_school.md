@@ -10,3 +10,10 @@ Words to learn for primary school
 8. investigate
 9. leader
 10. miserable
+11. mumble
+12. nibbled
+13. observe
+14. prefer
+15. protect
+16. squirm
+17. warning
