@@ -7,3 +7,4 @@ Words to learn for primary school
 5. feast
 6. frustrated
 7. gigantic
+8. investigate
