@@ -17,3 +17,4 @@ Words to learn for primary school
 15. protect
 16. squirm
 17. warning
+18. political
