@@ -6,3 +6,4 @@ Words to learn for primary school
 4. exhausted
 5. feast
 6. frustrated
+7. gigantic
