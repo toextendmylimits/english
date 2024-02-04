@@ -19,3 +19,4 @@ Words to learn for primary school
 17. warning
 18. political
 19. social
+20. spend
