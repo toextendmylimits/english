@@ -18,3 +18,4 @@ Words to learn for primary school
 16. squirm
 17. warning
 18. political
+19. social
